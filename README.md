@@ -1,0 +1,1 @@
+# Checklist-for-mybox.ru-and-Mybox-mobile-app
